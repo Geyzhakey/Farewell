@@ -1,0 +1,2 @@
+# Farewell
+Sekedar entahlah
